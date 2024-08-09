@@ -1,1 +1,0 @@
-getting my portfolio ready
